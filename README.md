@@ -1,5 +1,8 @@
-### Hi there 👋
-<img src="https://giphy.com/embed/qgQUggAC3Pfv687qPC" width="200"/>
+### Hi there  mi nombre es Axel
+
+El portafolio con el cual estuve trabajando me gusto muchisimo el estilo y la combinacion de colores del mismo. Espero que les guste mi primer trabajo fomal, desde ya gracias por visitar mi perfil!!
+
+
 <!--
 **axelluna22/axelluna22** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
