@@ -1,6 +1,8 @@
-### Hi there  mi nombre es Axel
+### Hi there  mi nombre es  axel🤙
 
-El portafolio con el cual estuve trabajando me gusto muchisimo el estilo y la combinacion de colores del mismo. Espero que les guste mi primer trabajo fomal, desde ya gracias por visitar mi perfil!!
+El portafolio con el cual estuve trabajando me gusto muchisimo el estilo y la combinacion de colores del mismo. Espero que les guste mi primer trabajo formal, desde ya gracias por visitar mi perfil!✍️
+
+
 
 
 <!--
